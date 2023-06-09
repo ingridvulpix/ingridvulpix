@@ -1,10 +1,10 @@
 Oi, eu sou @ingridvulpix!
 
-Hey, I’m @ingridvulpix!
+Hey, I’m @ingridvulpix! [Ele/Ela/Elu]
  
  1- :desktop_computer: Desbravando o mundo da programação
  
- 2- :cat: Apaixonada por gatos
+ 2- :cat: Apaixonado por gatos
  
  3- :video_game: Geek e otaku porque a vida tem dessas coisas
 
