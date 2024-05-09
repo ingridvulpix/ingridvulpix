@@ -1,6 +1,6 @@
 Oi, eu sou @ingridvulpix!
 
-Hey, I’m @ingridvulpix! [Ele/Ela/Elu]
+Hey, I’m @ingridvulpix! [Ele/Dele]
  
  1- :desktop_computer: Desbravando o mundo da programação
  
