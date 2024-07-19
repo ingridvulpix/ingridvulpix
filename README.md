@@ -5,8 +5,6 @@ Hey, I’m @ingridvulpix! [Ele/Dele]
  1- :desktop_computer: Desbravando o mundo da programação
  
  2- :cat: Apaixonado por gatos
- 
- 3- :video_game: Geek e otaku porque a vida tem dessas coisas
 
  <div>
   <a href="https://github.com/ingridvulpix">
